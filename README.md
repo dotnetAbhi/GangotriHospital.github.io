@@ -1,2 +1,2 @@
-# GangotriHospital.github
+# GangotriHospital.github.io.
 
